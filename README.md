@@ -1,5 +1,7 @@
-Contact me: contact@cauvang32.tk  
+Contact me to get access:  
 
-Source code in C++  
+Email: contact@cauvang32.tk  
+
+Discord: Cậu Vàng#8013  
 
 Link: https://github.com/Coder-Vippro/Cpp-Source/tree/master/Main-Workspace/Colinh Or https://github.com/Coder-Vippro/Cpp-Source/tree/master/Main-Workspace/Thaytuong  
